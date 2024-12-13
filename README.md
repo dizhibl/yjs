@@ -9,7 +9,7 @@
  ------
  :heart: :point_right: 【最新地址4】 ：xd.smxd10.cc/shenmi
  ------
-  :heart: :point_right: 【小黄鸭发布页】 ：dizi10.one/xd
+  :heart: :point_right: 【秘密发布页】 ：dizi10.one/xd
  ------
  ⚠温馨提示：网址前一定要添加“ https:// ”，能更顺畅访问。
  （建议复制地址到谷歌浏览器中打开，直接打开容易屏蔽）
